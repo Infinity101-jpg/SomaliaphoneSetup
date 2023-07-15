@@ -6,6 +6,7 @@
 ![.](https://lh3.googleusercontent.com/u/0/drive-viewer/AITFw-wXx8UPGjvCyGlwufTRLrj4BNDBNboihuOH8bg5mI4EvkNTXqBItW9eEZynIykQFysGjB81V3VOTrHdcHjGOtrBodXrHQ=w1317-h640)
 ![](https://lh3.googleusercontent.com/u/0/drive-viewer/AITFw-yAzCt8QNnR9uBAObUZlVfQ1LDCjRCL0xc2syErMXZglpKw3XLtpSZ=w1317-h640)<br>
 ![](https://lh3.googleusercontent.com/u/0/drive-viewer/AITFw-yAzCt8QNnR9uBAObUZlVfQ1LDCjRCL0xc2syErMXZglpKw3XLtpSZ=w1317-h640)<br>
+Also, in developer options, change _Simulate display with cutout_ (about 2/3rds to the bottom) to _tall cutout_ 
 #### _* *Set this wallpaper* *_
 ![.](https://lh3.googleusercontent.com/u/0/drive-viewer/AITFw-z1Rss-XQdfcRLK5ZhEZljhq7otEvAAqatkJHeP9iQAAu1byDl-Fd-wxCuci6XpkVRi_H3Znwwg4_Cd2sAQ6lvmaSEI=w1317-h640)
 ![](https://lh3.googleusercontent.com/u/0/drive-viewer/AITFw-yAzCt8QNnR9uBAObUZlVfQ1LDCjRCL0xc2syErMXZglpKw3XLtpSZ=w1317-h640)<br>
