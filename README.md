@@ -17,5 +17,6 @@ Here's a copy of my self-improvement things I have to follow
 ### _* *Sirianni notes* *_
 Below is my printing template for the cards for the sirianni remembering method 
 ![](https://lh3.googleusercontent.com/u/0/drive-viewer/AITFw-yAzCt8QNnR9uBAObUZlVfQ1LDCjRCL0xc2syErMXZglpKw3XLtpSZ=w1317-h640)<br>
-[link](https://drive.google.com/file/d/1DgyIB3_WdQrHeQujdr0jsXzrFG_FHtDg/view)
+[link](https://drive.google.com/file/d/1DgyIB3_WdQrHeQujdr0jsXzrFG_FHtDg/view) -- Card sizes cutout
+
 
